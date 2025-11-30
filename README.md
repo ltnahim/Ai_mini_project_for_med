@@ -1,0 +1,1 @@
+# Ai_mini_project_for_med
